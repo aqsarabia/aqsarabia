@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @aqsarabia
 - 👀 I’m interested in generative AI
 - 
-- 🌱 I’m currently learning Generative AI from governoer house 
+- 🌱 I’m currently learning Generative AI from governoer house
+- i am the student of miss hina naseer 💖 
 
 - 📫 How to reach me i am also available on social media platforms 
 - 😄 Pronouns: aqsooo
